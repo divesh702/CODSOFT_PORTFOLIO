@@ -23,4 +23,4 @@ You can download my resume directly from the website.
 
 ### 📬 Contact
 **Email**: diveshprajapati016@gmail.com  
-**Phone**: +91 98765 43210
+**Phone**: +91 7395036504
